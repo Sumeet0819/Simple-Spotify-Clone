@@ -1,1 +1,1 @@
-I made this clone watching a tutorila video on youtube.
+I made this clone watching a tutorial a video on youtube.
